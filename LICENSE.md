@@ -1,4 +1,4 @@
-#  
+#  Experience aura ascension like never before with underground aura ascension Script, the #1 Script. Includes one-hit kill and auto-collect for
 
 
 
